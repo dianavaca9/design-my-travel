@@ -1,5 +1,5 @@
 ---
-title: Template for Knowledge Base Docs Websites
+DESIGN YOUR TRAVEL: This website is designed to help you create the best itenirary for your dream travels.
 ---
 ## The index page
 

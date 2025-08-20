@@ -1,0 +1,1 @@
+Hello Travelers! My name is Diana Vaca and I'm from a small town in East, Tx. I have always loved to travel, wether its for a 3 day weekend trip, a week vacation, or spending the summer traveling abroad! This website is to help you envision and create the perfect itinerary for your travels!
